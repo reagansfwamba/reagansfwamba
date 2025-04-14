@@ -40,7 +40,7 @@ I'm excited to collaborate on:
 
 ## 📫 Let's Connect
 - **Professional Inquiries**: [reaganfwambaa@gmail.com](mailto:reaganfwambaa@gmail.com)
-                              [reaganfwambaa@gmail.com](mailto:reaganfwambaa@icloud.com)
+                     /         [reaganfwambaa@gmail.com](mailto:reaganfwambaa@icloud.com)
 - **LinkedIn**: [linkedin.com/in/www.linkedin.com/in/reagan-f-04a448244](https://www.linkedin.com/in/www.linkedin.com/in/reagan-f-04a448244)
 - **Twitter**: [@reaganfwambaa](https://twitter.com/[your-handle](https://x.com/reaganfwambaa))
 
