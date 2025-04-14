@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Reagan Wambaa
+# 👋 Hi, I'm Reagan Fwamba
 
 **`@reagansfwamba`**  
 **`Full-Stack Engineer | Java Specialist | Cloud Security Advocate`**
